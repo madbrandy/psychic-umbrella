@@ -1,0 +1,3 @@
+# psychic-umbrella
+a little cra cra and over and up with sillyness but fun laughter and smiles....love life,god and all humans.....
+46yr old woman,mother of 6 children 5 boys and 1 girl ,married,white,unemployed atm.
